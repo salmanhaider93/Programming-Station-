@@ -10,3 +10,7 @@
 #Programming station 
 
 ![image](https://github.com/user-attachments/assets/7d6cc8b2-8a08-4d7d-91af-5336d0e0ed42)
+
+
+https://github.com/user-attachments/assets/057829a4-fa80-4108-8cc7-403d84ebf61e
+
